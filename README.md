@@ -10,4 +10,4 @@ Plus the overall adverse inequality and personification's portrayed onto them by
 (I would also like to give you an opportunity to read interviews with people in such dramatic circumstances, Not for the sympathy vote, but for the idealism that things could be worse and that all we can really do, is to keep on trucking!)
 I will also be explaining the difficulty young people face attempting to get on the property ladder as first time buyers.
 
-Being able to do a piece on this which is something our country seems to be struggling with at this time of uncertainty with Brexit and the like. So I would also like to give a small preview into the business's and communities that are gojng that extra mile to accomodate these less than equipped people in times of hardship.
+Being able to do a piece on this which is something our country seems to be struggling with at this time of uncertainty with Brexit and the like. So I would also like to give a small preview into the business's and communities that are going that extra mile to accomodate these less than equipped people in times of hardship.
